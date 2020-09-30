@@ -13,4 +13,4 @@ My name is **Collyn Maurice Legast.** I was born the **Twelfth of December 2005*
 
 My Instagram: <https://www.instagram.com/collyn.lst/?hl=de>
 
-My Email: collyn@legast.de
+My Email: [collyn@legast.de](collyn@legast.de)
